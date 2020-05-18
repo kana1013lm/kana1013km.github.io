@@ -10,3 +10,7 @@ cervelo S3 discに乗っています
 ### SNSアカウント
 [twiiter](https://twitter.com/settings/account)
 [instagram](https://www.instagram.com/?hl=ja)
+
+#### History
+入賞歴
+- 2019 cyclocross u17 🥉
