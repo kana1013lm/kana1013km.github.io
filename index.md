@@ -5,7 +5,7 @@ cervelo S3 discに乗っています
 ## Profile
 -　長島慧明
 -　自転車の町
--　登り
+-　登りだけ得意
 
 ### SNSアカウント
 [twiiter](https://twitter.com/settings/account)
